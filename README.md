@@ -1,6 +1,6 @@
 # 🏍️ Amotopart Discount Code "HPK90" – Get 90% OFF On All Orders!
 
-![Amotopart Logo](logo.png)
+![Amotopart Logo](https://github.com/bestblofinreferralcode/Amotopart-/blob/main/56.png)
 
 ## 🌟 Amotopart: Premium Motorcycle Parts at Unbeatable Prices (Use Code HPK90)
 
